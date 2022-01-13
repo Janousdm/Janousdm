@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Janousdm
-- 👀 I’m interested in you
+- 👋 Hi, I’m kaasje
+- 👀 I’m interested in myself
 - 🌱 I’m currently learning how to say cheese
 - 💞️ I’m looking to collaborate on..
 - 📫 How to reach me just text me, or dm idk how this app works
